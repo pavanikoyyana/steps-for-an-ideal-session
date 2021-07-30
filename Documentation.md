@@ -30,11 +30,14 @@
                                   at 3 min - red card
           similarly for table topic session .
 # points to be remebered
+     
      After completion of all the sessions the taggle team will give their reports also evaluators will speak
+     
      about the speakers about their positives,negatives,improvements about their speech .
      we need to take care of the position of our camera in a proper angle , facial expressions,hand gestures
- usage of words , giving correct information about the motive of your speech , not giving so many pauses.
- you need to be clear about what you are going to speak .
+     usage of words , giving correct information about the motive of your speech , not giving so many pauses.
+      
+     you need to be clear about what you are going to speak .
 
  
            
